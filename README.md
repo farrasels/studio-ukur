@@ -14,7 +14,7 @@ Melayani:
 
 ## 📬 Kontak
 
-Diskusi proyek via WhatsApp: [wa.me/6281234567890](https://wa.me/6281234567890)
+Diskusi proyek via WhatsApp: [wa.me/6282284136814](https://wa.me/6282284136814)
 
 ---
 
