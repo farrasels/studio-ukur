@@ -10,7 +10,7 @@ Melayani:
 
 ## 🌐 Live
 
-[studiokur.vercel.app](https://studiokur.vercel.app)
+[studio-ukur.vercel.app](https://studio-ukur.vercel.app)
 
 ## 📬 Kontak
 
